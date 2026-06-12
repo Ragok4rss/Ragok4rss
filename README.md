@@ -4,8 +4,8 @@
 
 
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;𝙈𝙮 𝙊𝙘 (⁠｡⁠•̀⁠ᴗ⁠-⁠)⁠✧.
-
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;~~~~ 𝙈𝙮 𝙊𝙘 (⁠｡⁠•̀⁠ᴗ⁠-⁠)⁠✧. ~~~
+![image](https://github.com/user-attachments/assets/f2b7b4f7-d4cf-4eeb-bc2b-628b24cdae15)
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img src="https://github.com/user-attachments/assets/a7910719-b23b-4fba-936a-8eb3bc370c81" width="500" />
 
