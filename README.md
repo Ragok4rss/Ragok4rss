@@ -12,3 +12,4 @@
                                        𝙈𝙮 𝙛𝙞𝙫𝙚 𝙖𝙣𝙜𝙚𝙡𝙨 (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)
                                           Bias Minji
 <img src="https://github.com/user-attachments/assets/72969827-81f7-47fe-b426-016ee80da23e" />
+[![Spotify](https://spotify-github-readme.vercel.app/api/spotify)](https://open.spotify.com/collection/tracks)
