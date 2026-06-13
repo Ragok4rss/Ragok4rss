@@ -13,4 +13,3 @@
                                           Bias Minji
 <img src="https://github.com/user-attachments/assets/72969827-81f7-47fe-b426-016ee80da23e" />
 
-![Alt text](https://spotify-recently-played-readme.vercel.app/api? ragokss=316ndq5yl7hka3eg4qqd2antpbku
