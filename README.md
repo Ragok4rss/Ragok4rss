@@ -13,4 +13,4 @@
                                           Bias Minji
 <img src="https://github.com/user-attachments/assets/72969827-81f7-47fe-b426-016ee80da23e" />
 
-[![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api? ragokss=jeffreyca16)](https://open.spotify.com/ragokss/jeffreyca16)
+[![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?ragokss=jeffreyca16)](https://spotify-github-profile.kittinanx.com/api/view?uid=316ndq5yl7hka3eg4qqd2antpbku&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color_cover=true)
