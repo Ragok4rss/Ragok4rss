@@ -14,8 +14,3 @@
 <img src="https://github.com/user-attachments/assets/72969827-81f7-47fe-b426-016ee80da23e" />
 
 
-<p align="center">
-  <a href="https://github.com">
-    <img src="https://kittinanx.com" width="600" />
-  </a>
-</p>
