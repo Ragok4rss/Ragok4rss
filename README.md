@@ -14,7 +14,7 @@
                                            𝙈𝙮 𝙖𝙣𝙜𝙚𝙡𝙨 (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)
                                           Bias Xie Fei 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70202&width=435&lines=I+will+avenge+my+boss.)](https://git.io/typing-svg)
+&emsp;&emsp;&emsp;&emsp;&emsp;[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70202&width=435&lines=I+will+avenge+my+boss.)](https://git.io/typing-svg)
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;══════════════════════════════
 <br><br><br>
