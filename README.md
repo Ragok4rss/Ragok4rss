@@ -14,6 +14,8 @@
                                            𝙈𝙮 𝙖𝙣𝙜𝙚𝙡𝙨 (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)
                                           Bias Xie Fei 
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F71614&width=435&lines=%22Just+like+some+people%2C+I+only+aim+for+the+best%2C+whether+it's+a+project+or+a+relationship.%22)](https://git.io/typing-svg)
+
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;══════════════════════════════
 <br><br><br>
                                           
