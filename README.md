@@ -19,7 +19,8 @@
                                           Bias Xie Fei 
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70404&width=435&lines=%E3%85%A4%E3%85%A4%E3%85%A4I+will+avenge+my+boss.)](https://git.io/typing-svg)
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;══════════════════════════════
+
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;══════════════════════════════
 <br><br>
                                           
 <img src="https://github.com/user-attachments/assets/72969827-81f7-47fe-b426-016ee80da23e" />
