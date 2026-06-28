@@ -13,7 +13,7 @@
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70404&width=435&lines=%E3%85%A4%E3%85%A4%E3%85%A4I+Love+you+Vein)](https://git.io/typing-svg)
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img src="https://github.com/user-attachments/assets/6ba85b60-dbc9-4291-819f-a2c958852d9b" width="500" />
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img src="https://github.com/user-attachments/assets/f681edfb-6a62-4343-8f6a-27f29e2a4c87" width="500" />
 
                                            𝙈𝙮 𝙖𝙣𝙜𝙚𝙡𝙨 (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠)
                                           Bias Xia Fei 
