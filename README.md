@@ -11,7 +11,8 @@
 
 
 
-`&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;$\color{#ffeb53}{\textsf{都是你的错}}$
+`&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;
+$\color{#ffeb53}{\textsf{都是你的错}}$
 
 
 
