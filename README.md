@@ -17,8 +17,7 @@
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;══════════════════════════════
 <br><br>
-                                          
-<img src="https://github.com/user-attachments/assets/dbb8c39e-e09b-4bb6-9c38-13a3de436c0a" />
+                                      
 
 
 
