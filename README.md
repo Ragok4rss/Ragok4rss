@@ -11,10 +11,7 @@
 
 
 
-`&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<p>
-都是你的错
-<text style="color: #FFF44F">ERROR</text>
-</p>
+`&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<
 
 
 
